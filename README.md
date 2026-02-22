@@ -1,0 +1,82 @@
+# TOPHAMHAT-KYO – Baby kisser
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+お願いする時だけ真摯に振る舞って
+用なしになった後は
+知らんぷりがお上手
+あれこれ欲しがって
+禁忌にぶつかって
+言う事とやる事のダイバージェンス
+パラドックス
+Oh my god てな状態だ
+将来は老獪な妖怪たちに壊されそう
+後悔先に立たず
+蒙昧な群れに擦り寄る
+憂い吹き込む
+目にも鮮やかに懐柔すべく
+Many more 肩書き 怪獣スペック
+利己的に踏み切った
+プリテンダーに鳴らすサイレン
+Uhh baby let me kiss you again
+(Kiss you again)
+Uhh baby let me kiss you again
+(Kiss you again)
+Uhh baby let me kiss you again
+(Kiss you again)
+奴等は全て計算済みだ (Biter)
+Baby kisser baby kisser
+無垢とは正反対の存在
+指切った
+指切ったくせに反故にする
+欺瞞 Show time
+Baby kisser baby kisser
+おためごかしの鑑が混在
+作り物スマイル
+(Oh my heavenly days)
+喝采浴びてはメイクマネー
+秀才手懐け手繋げ
+煩い罵倒 掻き消すまで
+嘘っぱち デマカセ 堂々と諳んじて
+Oh my baby let me kiss you again
+Oh my baby let me kiss you again
+Oh my baby let me kiss you again
+階級上げて特権を手にして
+パンピーなぶりヘル
+何回騙されても犯罪かまされても
+万歳させてしまう
+惨害晒されても残骸漁られても
+散財させてしまう
+今更名誉挽回もない
+ガン無視かスルーさ 反対のサイン
+権力誇示に意固地になって
+またひとり ぐろマグロ
+水面下の大惨事もようやく浮き
+彫りになってきた
+中枢 ライフライン 乗っ取り
+******に守護された
+Notorious invaders
+木霊する犬笛 手招く合図
+芸能スキャンダルでジャミング
+知らぬ間に成る人工的厄災
+(Oh my heavenly days)
+喝采浴びてはメイクマネー
+秀才手懐け手繋げ
+煩い罵倒 掻き消すまで
+嘘っぱち デマカセ 堂々と諳んじて
+Oh my baby let me kiss you again
+Oh my baby let me kiss you again
+Oh my baby let me kiss you again
+Baby kisser baby kisser
+無垢とは正反対の存在
+指切った
+指切ったくせに反故にする
+欺瞞 Show time
+Baby kisser baby kisser
+おためごかしの鑑が混在
+悪戯に只管に欺く
+Baby kisser baby kisser
+階級上げて特権を手にして
+パンピーなぶりヘル
+```
