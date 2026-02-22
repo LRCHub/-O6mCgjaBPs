@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "Baby kisser",
+  "base_artist": "TOPHAMHAT-KYO",
+  "createdAt": "2026-02-22T18:07:10.401364Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "Baby kisser",
+      "artist": "TOPHAMHAT-KYO",
+      "has_synced": false,
+      "path": "select/pl_01_Baby_kisser_TOPHAMHAT-KYO.txt"
+    }
+  ]
+}
